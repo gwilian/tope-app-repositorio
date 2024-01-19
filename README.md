@@ -1,2 +1,0 @@
-# tope-app-repositorio
- 
